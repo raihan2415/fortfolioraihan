@@ -1,0 +1,2 @@
+# fortfolioraihan
+portfolio lks tkj
